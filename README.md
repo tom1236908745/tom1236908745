@@ -1,4 +1,4 @@
-### Prof 🍸
+## Prof 🍸
 I'm Tomoki Nmakayama. 
 ---
 ### *[about me]*
